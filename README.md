@@ -6,7 +6,7 @@ Eu sou estudante do ensino médio do 1A
 
 Estudo na escola Porfirio Pimentel
 
-Instagram:@levibiruta - caso queira entrar em contato🫶
+Instagram:@g_leviss - caso queira entrar em contato🫶
 
 Também ja desenvolvi varios programas:
 
